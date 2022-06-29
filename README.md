@@ -1,2 +1,0 @@
-# Edgard-Vieira
-criaçao
